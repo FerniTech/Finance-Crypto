@@ -1,1 +1,1 @@
-# Analysis finance and crypto. Research project
+# Analysis about finance and crypto. Research project
